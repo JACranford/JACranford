@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JACranford
+- 👀 I’m interested in all things POS related
+- 🌱 I’m always learning
